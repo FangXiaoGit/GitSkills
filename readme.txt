@@ -1,1 +1,1 @@
-Create a new branch too fast£¡
+Create a new branch is too fast£¡
